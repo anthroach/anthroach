@@ -8,3 +8,5 @@ i have a Lot of interests. but currently i have ponies of:
 - adofai
 - limbus company
 - various slasher movies (black christmas, halloween, texas chainsaw massacre)
+
+feel free to sit with me if we share interests especially if youre a fellow Guy Who Loves To Sit And Do Nothing on ponytown
