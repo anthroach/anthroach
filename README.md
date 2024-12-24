@@ -1,7 +1,7 @@
 hi im huxley and i like to play the funny pony game
 
 - i kind of just sit wherever i feel like
-- im usually on the safe server now but i was more active on 18+ in the past
+- i play on both the 18+ and safe servers
 - i like to leave ponytown open in the background while i do other things so most of the time i am semi-afk. if you say something to me and i dont reply im not ignoring you i just probably didnt see it
 
 i have a Lot of interests. but currently i have ponies of:
