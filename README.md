@@ -1,7 +1,7 @@
-hi im huxley and i like to play the funny pony game
+hi we play ponytown sometimes. most of the time you will be talking to lumen (they/them) but sometimes catherine (she/her) plays too
 
-- i kind of just sit wherever i feel like
-- i play on both the 18+ and safe servers
-- i like to leave ponytown open in the background while i do other things so most of the time i am semi-afk. if you say something to me and i dont reply im not ignoring you i just probably didnt see it
+- we kind of just sit wherever we feel like, we have no real 'main' area
+- we play on both the 18+ and safe servers
+- most of the time we are doing other things with ponytown open, so if you say something to us and we don't reply we probably just didn't see it
 
-feel free to sit with me and/or add me if we share interests especially if youre a fellow Guy Who Loves To Sit And Do Nothing on ponytown!
+okay that's all thanks for reading byeeeee :3
